@@ -1,6 +1,6 @@
 ### Hi 👋 
 
-### There is jianlu !
+### There is jianlu.
 
 ------
 
